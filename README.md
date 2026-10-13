@@ -1,0 +1,2 @@
+# premium-ikebana-vessel-001-ikebana-vessel-pottery-japan
+Tired of using random vases that never capture the true spirit of ikebana? Your vessel is half the art—get the complete hub to master pottery selection and arrangement together.  This hub bridges the gap between pottery craft and ikebana design, giving you curated knowledge on vessel forms, clay types, and arrangement techniques. No more guesswork—
